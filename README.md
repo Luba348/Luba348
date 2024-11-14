@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Luba348
+- 👩🏾‍💻 I’m interested in data science and data analytics
+- 🌱 I’m currently at the University of Cape Town studying Information Systems
+- 📫 You can reach me on LinkedIn by searching for Lubaelihle Msuku
+- 😄 Pronouns: She/Her
